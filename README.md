@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **machine learning**
 
-- 📫 How to reach me **javissg9@gmail.com**
+- 📫 How to reach me **reachme.skimmer531@passmail.net**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
